@@ -1,5 +1,5 @@
 
-# I'm João Victor Rondon - mka Rondon 😄
+# I'm João Victor - mka Rondon 😄
 ## What's up everyone! 
 
 I have 17 years old student , I'm from Brazil and I joined the programming world recently, gaming and cars are my passion❣️ I'm at UCDB studing Computer Engineering.
